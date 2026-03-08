@@ -1,0 +1,120 @@
+# ピーナッツくん – おねがいマーニー
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Ah mama money
+稼いでるよ more money
+You should 頑張り
+風邪引いても more more money
+Ah mama money
+ぼくの尊厳 no money
+けれどまぁ money
+じゃなきゃ万年 No momey
+ぼくは食べるカニ
+稼ぐmoney
+君は儲からない
+みんなが飲んでるタピ
+ぼくはキャビ
+おっさんは行ってるパチ
+ぼくは食べるカニ
+稼ぐmoney
+君は儲からない
+みんなが飲んでるタピ
+ぼくはキャビ
+おっさんは行ってるパチ
+ゆるキャラのハスラー
+いつか乗ってるマスタング
+サイゼ食べるパスタ
+神が見届けてる
+ぼくはバーチャル土方
+でかい現場先は儲かった
+逆にしょぼい奴は路肩
+野垂れ死ぬことなくよかったね
+ピンハネ隠してたの
+許さねぇからな一生
+キリがねぇ噂話
+引き金手にかかった
+その気なりゃ
+ツイッターに
+DM晒すこともできる
+だけどバカのやることでしょう
+Money more money
+もうみな一緒でしょ
+だけどmoneyどこ？
+ぼくのmoneyどこ？
+働かなきゃなぁ
+ずっと万年床
+いつも金縛り
+幽霊もいないのに
+夢の中でchillしたいが
+そうもいかないみたい
+Ah mama money
+稼いでるよ more money
+You should 頑張り
+風邪引いても more more money
+Ah mama money
+ぼくの尊厳 no money
+けれどまぁ money
+じゃなきゃ万年 No momey
+ぼくは食べるカニ
+稼ぐmoney
+君は儲からない
+みんなが飲んでるタピ
+ぼくはキャビ
+おっさんは行ってるパチ
+ぼくは食べるカニ
+稼ぐmoney
+君は儲からない
+みんなが飲んでるタピ
+ぼくはキャビ
+おっさんは行ってるパチ
+Please cash for my wallet
+I need a good cash teeth like
+オーラ2
+I win the paper race like a
+トーマス
+Galaxy pirates ぼくはゴージャス
+Please cash for my wallet
+I need a good cash teeth like
+オーラ2
+I win the paper race like a
+トーマス
+Galaxy pirates ぼくはゴージャス
+あー何もせずに金が降る
+支払いとかしてくれ
+あれもこれも信じない
+祈り捧ぐ神だけ
+何よmoney
+百恵山口ならプレイバック
+空回りする
+いつだって同じ
+早くそこ行かなきゃ
+見てるすべてタダ
+それくらいの感覚
+溢れかえる万札
+そんなことよりも先
+周り幸せならラッキー
+それじゃ足りないんだマジ
+稼ぎまくる見ててマミー
+Ah mama money
+稼いでるよ more money
+You should 頑張り
+風邪引いても more more money
+Ah mama money
+ぼくの尊厳 no money
+けれどまぁ money
+じゃなきゃ万年 No momey
+ぼくは食べるカニ
+稼ぐmoney
+君は儲からない
+みんなが飲んでるタピ
+ぼくはキャビ
+おっさんは行ってるパチ
+ぼくは食べるカニ
+稼ぐmoney
+君は儲からない
+みんなが飲んでるタピ
+ぼくはキャビ
+おっさんは行ってるパチ
+```
